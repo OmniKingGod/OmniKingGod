@@ -1,0 +1,2 @@
+# OmniKingGod
+OmniGod/King Super!!!!
